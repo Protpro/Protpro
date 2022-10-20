@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Protpro
+- 👋 Hi, I’m @dipek
 - 👀 I’m interested in futbol
 - 🌱 I’m currently learning cow
 - 💞️ I’m not looking to collaborate
